@@ -1,1 +1,0 @@
-# Projeto-02-pagina-tematica-samuel
